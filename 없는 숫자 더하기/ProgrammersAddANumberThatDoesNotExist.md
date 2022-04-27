@@ -7,5 +7,6 @@
 
 # 여러 사람들의 코드 
 ![image](https://user-images.githubusercontent.com/76645966/165264852-15c3b16b-0e08-4b5b-a525-a16bba8a9308.png)
+![image](https://user-images.githubusercontent.com/76645966/165440141-a607b85d-40e7-4552-8ba4-5ca3260fddd7.png)
 
-### 나는 대체 무엇을 한건가..
+### 컥,,
